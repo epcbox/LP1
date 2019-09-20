@@ -1,2 +1,2 @@
-# LP1
+# PROJECT VIDEOGAME, Fuck off
 HOLIWI
